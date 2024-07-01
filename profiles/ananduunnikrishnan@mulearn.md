@@ -8,8 +8,7 @@ Computer Science and Engineering, I am passionate about harnessing and advancing
 the dynamic realm of information technology. My goal is to leverage these skills to excel in the field of
 UI/UX design, combining creativity and technical expertise for innovative and user-centric solutions. Designing was always my thing. 
 I also served as the design Lead of CSI SB SJCET. Speaking of my hobbies, I really like to watch movies and also a great fan of sports.
-Looking forward to exciting opportunities ahead!
-Checkout my behance profile : https://www.behance.net/ananduunnikrishnan
+Looking forward to exciting opportunities ahead! Checkout my behance profile : https://www.behance.net/ananduunnikrishnan
 Checkout my linkedln profile : https://www.linkedin.com/in/anandu-unnikrishnan-449965201
 
 
