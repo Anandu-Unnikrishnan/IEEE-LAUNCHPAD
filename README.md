@@ -10,7 +10,7 @@ UI/UX design, combining creativity and technical expertise for innovative and us
 I also served as the design Lead of CSI SB SJCET. Speaking of my hobbies, I really like to watch movies and also a great fan of sports.
 Looking forward to exciting opportunities ahead!
 > Checkout my behance profile : https://www.behance.net/ananduunnikrishnan
-Checkout my linkedln profile : https://www.linkedin.com/in/anandu-unnikrishnan-449965201
+> Checkout my linkedln profile : https://www.linkedin.com/in/anandu-unnikrishnan-449965201
 
 
 ## Portfolio Highlights
